@@ -1,2 +1,2 @@
-# pg-http-test
+# la internacia lingvo
 Ni lernu Esperanto feliĉe
