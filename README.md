@@ -1,2 +1,2 @@
 # la internacia lingvo
-Ni lernu Esperanto feliĉe
+Ni lernu Esperanton feliĉe
